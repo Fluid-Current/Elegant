@@ -1,2 +1,2 @@
 # Elegant
-Barbería
+Barbería de Jorge Eber, ubicada en Bagua.
